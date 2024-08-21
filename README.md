@@ -3,4 +3,4 @@ Link: https://github.com/skal3mar/Spotify-Premium-apk/releases/download/8.10.9.7
 
 
 # Spotify
-Crackspotify hehe 
+@BrianZild
